@@ -6,7 +6,6 @@
 - 🤔 I’m looking for help with ...
 - 💬 Contate-me no e-mail: brenobazaga@gmail.com
 - 📫 Você também pode me achar pelo instagram: @breno_bazaga
-- 😄 Pronome: ele/dele
 - ⚡ Fatos sobre mim: Sou fanático por esportes e e-sport
 
 <div align="center">
